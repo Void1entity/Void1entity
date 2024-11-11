@@ -1,7 +1,1 @@
-- 👋 Hi, I’m @Void1entity
-- 👀 I’m interested in rats
-- 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on ...
--  📫 How to reach me ... uhh discord!
-- 😄 Pronouns: im a biological male 
-- ⚡ Fun fact: i love leopord geckos and im a follower of Christ
+hello i am rimbless_skid1 
